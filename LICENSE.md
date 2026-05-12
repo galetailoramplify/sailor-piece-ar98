@@ -1,4 +1,4 @@
-#  
+#  elite Script for sailor piece is the best sailor piece Script, featuring instant win and auto-sell. Safe and powerful for all your needs.
 
 
 
